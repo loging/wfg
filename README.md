@@ -11,4 +11,7 @@ https://github.com/Rabbit-Spec/Surge
 
 
 iPhone （免拔卡）解锁 TikTok + 换区 + 发布视频 + 直播 + 点赞评论
+
 https://github.com/Semporia/TikTok-Unlock
+
+https://www.youtube.com/watch?v=u_97OKy2mS0
